@@ -1,4 +1,4 @@
-#  
+#  Trello for macOS vip Integration - tags and dark mode is the best Trello for macOS integration, featuring tags and dark mode. Safe, efficient, and optimized for macOS users.
 
 
 
